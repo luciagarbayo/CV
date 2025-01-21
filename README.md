@@ -1,0 +1,1 @@
+My name is Lucía Garbayo, an engineering student whose passionate about technologies and it's about to start her own career in the sector. Right now I'm finishing my studies while I begin to dig in the tech sector a bit while I work as an intern in Salesforce.
